@@ -1,3 +1,3 @@
 # NEWRPG
-Lasanha ou copao.
+Lasanha ou copao.<br>
 KD MEUS COPÃO?
