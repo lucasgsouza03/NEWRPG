@@ -1,2 +1,2 @@
 # NEWRPG
-Lixo
+Lasanha ou copao.
